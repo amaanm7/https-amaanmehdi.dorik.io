@@ -1,1 +1,1 @@
-# https-amaanmehdi.dorik.io
+# https-amaanmehdi.dorik.io/
